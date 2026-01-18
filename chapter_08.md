@@ -1,4 +1,4 @@
- Chapter Eight: The Ceremony
+##Chapter Eight: The Ceremony
 Autumn had deepened into winter, and winter had softened into the first, tentative stirrings of spring.
 
 Amy remarked the change of season in small ways: the gradually shifting angle of the light flooding the studio windows at Sonoma State, the shift from bare branches to budding green along the commute from St. Helena, and the gradual warming of the earth in what she had come to think of as Julia’s garden. 
@@ -236,3 +236,4 @@ Anne’s laugh came from the heart, loud and sincere.
 “You… you… you impossible creature!” 
 “Yes, Mistress – but not just an impossible creature. I am your impossible creature.”
 Outside, the valley lay quiet under a sky full of stars. Inside, two women held each other, bound together by gold and promises and the stubborn human insistence on connection.
+
