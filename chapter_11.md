@@ -1,4 +1,4 @@
-## Chapter Eleven: The Beginning
+## Chapter Eleven: A New Beginning
 
 Six weeks had passed since the Anselm Kiefer exhibition.
 
@@ -683,3 +683,4 @@ The spark plugs were new, the engine ran smooth, and the road unwound before her
 The sun was warm through the windshield. The vineyards stretched green on either side of the road. Somewhere ahead, there was a future waiting, messy, beautiful and full of possibility.
 
 Anne smiled, and pressed on the accelerator, and drove towards it.
+
