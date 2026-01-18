@@ -14,11 +14,9 @@ Tuesdays and Thursdays, she drove to Sonoma State.
 
 The commute had become its own kind of meditation — forty-five minutes each way through the wine country, past vineyards that shifted with the seasons and the small towns and tasting rooms that dotted Highway 12. 
 
-Amy had learned to love that drive, the way it bracketed her days, giving her time to transition between her two selves: the art student who debated colour theory with Professor Chen and argued about composition with her classmates, and the slave who knelt at Anne's feet and found her truth in surrender.
+Amy had learned to love that drive, the way it framed her days, giving her time to transition between her two selves: on one hand, the art student who debated colour theory with Professor Chen and argued about composition with her classmates; and on the other, the slave who knelt at Anne's feet and found her truth in service and surrender.
 
-The collar, of course, came with her everywhere.
-
-She had learned to dress around it, using high-necked blouses and scarves in winter, or strategically draped necklaces that drew the eye away from the gold band at her throat. 
+She had learned to dress around her collar for school, using high-necked blouses and scarves in winter, or strategically draped necklaces that drew the eye away from the gold band at her throat. 
 
 Most people never noticed. Those who did, usually assumed it was a fashion statement.
 
@@ -28,13 +26,13 @@ But sometimes, someone looked closer.
 
 It happened on a Thursday in late September.
 
-Amy was in the campus coffee shop, waiting for her latte, scrolling through her phone. The barista called her name, and she stepped forward to collect her drink — and found herself face to face with a woman she vaguely recognized from her Figure Drawing II class. Tall, dark-haired, with an undercut and a sleeve of botanical tattoos that Amy had admired from across the studio.
+Amy was in the campus coffee shop, waiting for her latte, scrolling through her phone. The barista called her name, and she stepped forward to collect her drink — and found herself face to face with a woman she vaguely recognized from her Figure Drawing II class. She was a tall, dark-haired, slender young woman, with an undercut hairstyle, botanical tattoo sleeves that Amy had admired from across the studio, and a cute, leather bracelet intertwined with silver strands. Today she was wearing a cardigan, covering her beautiful tattoo sleeves.
 
 "Hey," the woman said. "Amy, right? I'm Dani. We're in Chen's class together."
 
-"Oh! hi!" Amy smiled, tucking her phone away. "Your gesture drawings are incredible, by the way. The one you did last week, of the model in contrapposto — the line quality was... insane!"
+"Oh! hi!" Amy smiled, tucking her phone away. "Your gesture drawings are incredible, by the way. The one you did last week, of the model in contrapposto? — the line quality was... insane!"
 
-Dani's face lit up. "Thanks! I've been working on loosening up my wrist." She rotated her hand as she said it, and Amy caught a glimpse of fading, tightly parallel lines on the inside of her forearm, the ghost of something that had been wrapped tightly on the young woman's flesh — and then released. "... Chen keeps telling me I'm too controlled." She smiled, a little embarrassed, then tilted her head, her eyes drifting down to Amy's throat.
+Dani's face lit up. "Thanks! I've been working on loosening up my wrist." She rotated her hand as she said it the cardigan sleeve hiked up a bit. Amy caught a glimpse of fading, tightly parallel lines on the inside of her forearm, marks that signalled that the young woman's flesh hat been tighty tied with rope restraints — and then released. "... Chen keeps telling me I'm too controlled." She smiled, a little embarrassed, then tilted her head, her eyes drifting down to Amy's throat.
 
 The world suddenly slowed down to a crawl.
 
@@ -44,17 +42,17 @@ The scarf she'd worn that morning had slipped loose. The collar was visible — 
 
 Amy's heart hammered. A year ago — heck, six *months* ago! — this moment would have sent her spiralling into a panic. She would have made excuses, adjusted her scarf, and done her best to change the subject entirely. She would have felt the shame her mother had tried to instil in her, the fear of being seen as different, as a deviant, as *wrong.* But she wasn't that girl anymore — and her mother no longer existed, as far as she was concerned.
 
-"Yes," Amy said. Her voice was steady. "It was made for me by a goldsmith in Healdsburg."
+"Uh... y-yes," Amy said. Her voice faltered a little, but steadied almost at once. "It was made for me by a goldsmith in Healdsburg." Amy felt her cheeks warm as a light flush spread through them.
 
-Dani's eyebrows rose slightly. Amy could see her processing — the weight of the metal, the way it sat flush against Amy's skin, the fact that there was no visible clasp.
+Dani's eyebrows rose slightly. Amy could almost see the cogs in the other woman's mind grinding, processing what she saw — the size of the metal band, the way in which the "choker" sat flush against Amy's skin, the fact that there was no visible clasp.
 
-"It's... permanent?" Dani asked, her voice suddenly softening to a slightly conspiratorial tone that sounded like recognition.
+"Is that... permanent?" Dani asked, her voice suddenly softening to a slightly conspiratorial tone that hinted recognition.
 
 "...Yes, it's there for good."
 
-There was a fluttering moment of silence. Then, silently, Dani's hand moved in an unconscious gesture, peeling her flannel shirt's left sleeve up a little and reveal slim leather band sat, half-hidden beneath the cuff.
+There was a fluttering moment of silence. Then, silently, Dani's hand moved in an unconscious gesture, peeling her cardigan's left sleeve up a little and revealing the slim leather band she always wore, half-hidden beneath the cuff.
 
-Amy's attentive eyes caught the movement, the half-hidden band — and both the tight silver string and the ring threaded through the place where a clasp would normally be.
+Amy could finally see the bracelet up clode. The silver thread held both sides of the bracelet fast, and the ring threaded through the place where a clasp would normally be.
 
 *Oh.*
 
@@ -68,13 +66,13 @@ Dani's smile widened. "Her name's Margot. We should all get dinner sometime."
 
 "I'll tell Anne, and if she allows it... it's a date."
 
-Amy felt relief expanding in her chest, and suddenly realised she hadn't even known she had been holding herself stiff — until then.
+Amy felt relief expanding in her chest, and suddenly realised she hadn't even known she had been holding herself stiff — until then. Her mind also just now registered the fact that they had been already introduced to each other by a common thread that linked them both -- the thread of service.
 
-The relief she was feeling now did not just come from having been seen without judgment.
+The relief she was feeling now, spreading through all of her, did not come from having been seen without judgment.
 
-It was the realisation that *she was not alone.*
+It came from the realisation that *she was not alone.*
 
-There were other people her age navigating this same lifestyle, balancing school and service, hiding in plain sight like a secret society.
+There were other people her own age navigating this same lifestyle, balancing school and service, hiding in plain sight like a secret society.
 
 "I'd like that," Amy said. "I'd really like that."
 
@@ -84,37 +82,41 @@ They exchanged phones, thumbs moving quickly over screens, and then Dani collect
 
 She had been seen. Truly seen. She had not hidden.
 
-And she had found, unexpectedly, a friend.
+And she had found, unexpectedly, a friend -- and *a fellow slave.*
 
 ---
 
 That evening, she told Anne everything.
 
-"She's owned too," Amy said, her head resting in Anne's lap, Anne's fingers carding gently through her hair. "Her collar is a leather cuff on her wrist, with a ring through it and silver thread woven through. There were fading rope marks on her arm as well. I could see them clearly enough. She has a Mistress named Margot."
+"She's owned too," Amy said, her head resting in Anne's lap as Anne's fingers gently comber through her hair. "Her collar is a leather bracelet on her wrist, with a ring through it and silver thread woven through. There were fading rope marks on her arm as well. I could see them clearly enough. She has a Mistress named Margot."
 
 "Margot..." Anne's hand stilled for a moment, thoughtful. "The name is not familiar to me. She's probably not part of the community I know."
 
-"Maybe she's newer? Or from a different circle?" Amy shifted slightly, looking up at Anne's face. "Dani wants us to have dinner together. All four of us."
+"Maybe she's a newcomer? Or perhaps she has a different circle?" 
 
-"Does she now." Anne's voice was warm with amusement. "And how do you feel about that?"
+Amy shifted slightly, looking up at Anne's face. 
 
-"Terrified," Amy admitted. "And... excited? I've never had a friend who... who knows and lives our life. It's... um... refreshing to have someone with whom I don't have to..."
+"Also, um, Dani wants us to have dinner together. All four of us."
 
-"... show performative normalcy to," said Anne, completing Amy's thoughts as if she had read her slave's mind.
+"*Does* she now." Anne said, her voice warm with amusement. "And how do *you* feel about that?"
 
-"Yes! Exactly." Amy turned her face into Anne's thigh, breathing in the familiar scent of her — sandalwood, clean cotton, the faint trace of the lavender soap they both used now. "With Dani, I didn't have to explain anything. She just... saw. And I saw her too."
+"Terrified," Amy admitted. "And... excited? I've never had a friend who... who knows and lives our life. It's... um... it's refreshing to have someone with whom I don't have to..."
 
-Anne's fingers resumed their gentle motion through Amy's hair. "It's a rare thing to find someone your own age who understands this life."
+"... to show performative normalcy to," said Anne, completing Amy's thoughts as if she had read her slave's mind.
 
-"... Mistress? Is it okay? Is it okay that I want this, Anne?"
+"Omigod, Mistress, yes! Exactly!" Amy turned her face into Anne's thigh, breathing in her familiar scent, made of sandalwood, cotton, the lingering freshness of the Hermés perfume she loved to use, and at the end the faint trace of the handmade lavender soap they both washed with. "With Dani, I didn't have to explain anything. She just... saw, and understood. And I saw and *understood* her, too."
 
-"More than okay." Anne pressed a kiss to the top of her head. "It means you're building *your* own life, with *your* own people, not just borrowing mine."
+Anne's fingers resumed their gentle motion through Amy's hair. "It's a rare thing to find someone your own age who is this lifestyla."
 
-"I like your people too, Mistress. Master Roger, and Evelyn, and—"
+"... Mistress? Is it okay?" then, more intimately, Amy said, "... Is it okay that I want this, Anne?"
 
-"I know you do, and they adore you, love." Anne's voice softened. "But they're part of my generation, love. You deserve friends who walk the same path you are on at the same *time.* You need peers, Amy, not just elders."
+"More than okay, mine." Anne pressed a kiss to the top of her head. "It means you're building *your* own life, with *your* own people, not just borrowing mine, Amy."
 
-Amy was quiet for a moment, feeling the truth of it settle into her bones.
+"I like your people too, Mistress. Master Roger, and Evelyn, and..."
+
+"I know you do, and they adore you, you know." Anne's voice softened. "But they're part of *my* generation, love. You deserve friends who walk the same path you are on at the same *time.* You need *peers,* Amy, not just elders."
+
+Amy was quiet for a moment, feeling the truth of it settle into her bones -- and marvelling at how close her Mistress's thoughts cleaved to her own.
 
 "So... dinner?"
 
@@ -122,43 +124,52 @@ Anne laughed. "Absolutely, mine. Set it up. I'm curious to meet this Margot."
 
 ---
 
-The dinner happened two weeks later, at a small Italian restaurant in Petaluma that Margot had suggested — neutral ground, she'd said, somewhere none of them had history with.
+The dinner happened two weeks later, at a small Italian restaurant in Petaluma that Margot had suggested — neutral ground, she'd said.
 
 Amy spent an hour getting ready, cycling through three outfits before Anne finally intervened.
 
-"The burgundy dress," Anne said, watching from the doorway with undisguised amusement. "With the pearl earrings. And stop fussing — you look beautiful."
+"Put on the burgundy dress, mine," Anne said, watching from the doorway with undisguised amusement. "Combine it with the pearl earrings. And stop fussing -- you look beautiful."
 
-"What if they don't like me? What if Margot thinks I'm too young, or too new, or—"
+"What if they don't like me? What if Margot thinks I'm too young, or too new, or..."
 
-"Then we'll have a pleasant meal and never see them again." Anne crossed the room and took Amy's face in her hands. "But I don't think that's going to happen. Dani chose you, mine. She saw something worth knowing. Trust her judgment."
+"Then we'll have a pleasant meal and never see them again." Anne crossed the room and took Amy's face in her hands. "But I don't think that's going to happen. Dani *saw* you, mine. She saw something worth knowing. Trust her judgment."
 
 Amy took a breath. "Yes, Mistress."
 
-"Good girl. Now finish getting dressed. We leave in twenty minutes."
+"Good girl. Now finish getting dressed. We leave in twenty minutes." 
+
+Amy's heart jumped. She was being told to get *dressed,* not *clothed.* 
 
 ---
 
 Margot was not what Amy had expected.
 
-She'd imagined someone like Anne — polished, controlled, with that particular stillness that marked a seasoned Dominant. Instead, the woman who rose to greet them was warm and animated, with laugh lines around her eyes and silver streaking through her dark curls. She wore jeans and a blazer, simple gold studs in her ears, and when she smiled, her whole face participated.
+She'd imagined someone like Anne — a polished, controlled woman, with the particular stillness she knew so well  in her Mistress and that she now automatically linked to a seasoned Dominant. 
+Instead, the woman who rose to greet them was warm and animated, with laugh lines around her eyes and silver streaking through her dark curls. She wore jeans and a blazer over a slightly sheer balconette top, wore simple gold studs on her ears, and, when she laughed, her whole face participated.
 
-"Anne. Amy." She clasped Anne's hand first, then Amy's, her grip firm but not performative. "I've heard so much about you both. Dani hasn't stopped talking since the coffee shop."
+"Anne, Amy, I'm so glad to meet you both." She clasped Anne's hand first, then Amy's, her grip firm but not performative. "I've heard so much about you, Amy. Dani hasn't stopped talking about *you* since the coffee shop."
 
-"Margot." Dani's voice carried a note of fond warning. "You promised."
+"Margot..." Dani's voice carried a note of fond warning. "You *promised.*"
 
-"I promised not to embarrass you. I said nothing about not embarrassing myself." Margot pulled out a chair for Dani with an ease that spoke of long practice. "Please, sit. I've already ordered wine — I hope you don't mind. The Barbera here is exceptional."
+"I promised not to embarrass *you.* I said nothing about not embarrassing myself." Margot pulled out a chair for Dani with an ease that spoke of long practice. "Please, sit. I've already ordered wine — I hope you don't mind. I've been told the Barbera here is exceptional."
 
-The first hour was careful. Polite conversation, the standard exchanges — how long have you been together, how did you meet, what do you do. Amy learned that Margot was a therapist specializing in alternative relationships, that she and Dani had met at a munch in Santa Rosa three years ago, that Dani had been the one to approach her.
+Neither Anne nor Amy minded.
+
+The first hour was careful, threaded with the standards of polite conversation — how long had they been together, how did they meet, and so on. Amy learned that Margot was a psychotherapist with a specialisation in alternative relationships, that she and Dani had met at a munch in Santa Rosa two years ago, and that *Dani* had been the one to approach her.
 
 "I saw her across the room," Dani said, her fingers absently tracing the leather band at her wrist, "and I just... knew. I walked up to her and said, 'I think you're supposed to be mine.'"
 
-"Bold," Anne observed, one eyebrow raised.
+"Bold move," Anne observed, one eyebrow raised.
 
-"Ridiculous," Margot corrected, but her eyes were soft. "She was twenty-two. I was forty-six. I told her she was out of her mind."
+"And a *ridiculous* one too," Margot said, but her eyes were soft. "She was twenty-two. I was forty-six. I told her she was out of her mind."
 
 "And then?"
 
-"And then she kept showing up. At munches, at workshops, at the coffee shop where I got my morning espresso." Margot shook her head. "She wore me down."
+"And then she *stalked* me. Somehow, she kept showing up wherever I went to. I saw her at munches, at workshops, at the coffee shop where I got my morning espresso..." 
+
+"Hey..." Dani said, feigning hurt.
+
+Margot grinned and teasingly smiled, then with a wry, complicit grin she said. "What could I do? She wore me down."
 
 "I prefer to think of it as persistence," Dani said primly.
 
@@ -166,55 +177,59 @@ Amy felt something loosen in her chest. This was familiar — the gentle teasing
 
 "Amy was the one who approached me, too," Anne said, and Amy startled.
 
-"I — I didn't—"
+Now it was Amy's turn to say "Hey..."
 
-"You said 'Miss.'" Anne's hand found hers under the table. "That first day, at the diner. You called me 'Miss,' and you had no idea what you were doing, and I couldn't stop thinking about you for weeks."
+Anne just grinned and gave her a playful wink.
 
-"That's not approaching," Amy protested, her cheeks warming. "That's just... being polite."
+"I — I didn't..."
 
-"It's recognizing," Margot said quietly. "Sometimes we know before we know. The soul sees what the mind hasn't caught up to yet."
+"You said 'Miss.'" Anne's hand found hers under the table. "That first day, at the diner, You called me 'Miss,' and you had *no* idea what you were doing, and I couldn't stop thinking about you for *weeks.*"
 
-The second hour was easier. The wine helped, but it was more than that — it was the relief of being in company where nothing needed to be explained or justified. When Dani mentioned that Margot had her on a new training protocol, no one blinked. When Anne casually referenced Amy's morning kneeling practice, Margot nodded in recognition.
+"That's not approaching," Amy protested, her cheeks warming. "That's just... being *polite.*"
 
-"We do something similar," she said. "Though Dani's is evening, not morning. She needs the transition time after work."
+"It's recognition," Margot said quietly. "Sometimes, the soul sees what the mind hasn't *quite* caught up to yet."
 
-"I process the day," Dani explained. "Let it go. By the time I rise, I've left everything outside our door."
+The second hour was easier. The wine helped to loosen the tongues and lighten the mood, but it was more than that. It was the relief that came from being in the company of people to whom nothing needed to be explained or justified. When Dani mentioned that Margot had her on a new training protocol, no one blinked. When Anne casually referenced Amy's morning kneeling practice, Margot nodded in recognition.
 
-Amy thought about her own morning ritual — the coffee, the kneeling, the sketch pad. The way it centered her before the day scattered her again.
+"We do something similar," she said. "Though Dani's routine is in the evenings. She needs the transition time at the end of the day."
+
+"I process the day when I kneel," Dani explained. "It's my way of letting it go. By the time I rise, I've left everything I need to leave behind outside our door."
+
+Amy thought about her own morning ritual -- Making Anne's coffee, the kneeling meditation, the sketches she drew in her pad every morning. She realised then that the ritual centred her, so she could face the day ahead ant its multiple chances to scatter her again.
 
 "It's like... resetting," she said slowly. "Coming back to what's true."
 
 Dani met her eyes across the table and smiled. "Exactly."
 
-The conversation drifted to training philosophies — the differences between households, the variations in protocol. Margot spoke about her approach, how it had been shaped by her years on the East Coast.
+The conversation drifted to training philosophies — the differences between households, the variations in protocols, nd how different places saw power exchange in different ways. Margot spoke about her approach and by how it had been shaped by her years in the East Coast.
 
-"The New York scene is so different from here," she said, refilling her wine glass. "More intense, in some ways. And the European influence — I spent time in London and Berlin, learning from people who'd been in the lifestyle for decades. But shibari..." Her eyes softened. "Shibari I learned in New York, from a rigger who'd trained in Tokyo. That changed everything for me."
+"The New York scene is so different from here," she said, refilling her wine glass. "It's way more intense, in some ways. And the European scene is a completely different thing, too. I spent time in London and Berlin, learning from people who'd been in the lifestyle for decades, and I was *lost* in the complexities of their rituals. Shibari, though..." Her eyes softened. "I learned it in New York, from a rigger who'd trained in Tokyo. That changed everything for me. Once you go rope... you dont'go back."
 
-Amy noticed Dani's fingers drift unconsciously to her forearm, where the fading rope marks lay hidden beneath her sleeve.
+Amy noticed Dani's fingers drift unconsciously to her forearm, where the fading rope marks lay hidden beneath her cardigan.
 
-"It's a different language," Margot continued. "Rope speaks directly to the body. There's no room for the mind to interfere."
+"It's a different *language,*" Margot continued. "Rope speaks directly to the body. There's no room for the mind to interfere."
 
-"Do you suspend?" Anne asked, and something in her voice made Amy look at her sharply.
+"Do you do suspension?" Anne asked, and something in her voice made Amy look at her with curiosity.
 
-"Sometimes. Dani prefers floor work — she likes to be held down rather than lifted up. But suspension..." Margot smiled. "There's nothing quite like it. The complete surrender of weight. Gravity becomes irrelevant."
+"Seldom. Dani prefers floor work — she likes to be held down rather than lifted up. But suspension..." Margot smiled. "There's nothing quite like it. It's about the complete surrender of weight. When done right... it's as if gravity became *irrelevant.*"
 
-Anne's face did something Amy couldn't quite read. A flicker, quickly controlled — not quite pain, not quite longing, but something in between.
+Anne's face did something Amy couldn't quite read. A quicly controlled wince of both pain and longing that came and went before anyone but Amy noticed.
 
 "Yes," Anne said quietly. "I know."
 
-Amy filed that away, uncertain what it meant.
+Amy filed that away, uncertain about what it meant.
 
-"You've worked with suspension?" Margot asked, her interest clearly piqued.
+"You've worked with suspension before," Margot said. It was not a question, and the tone of her voice showed her interest was clearly piqued.
 
-"A long time ago. With..." Anne paused. "With Julia. She loved to fly."
+"A long time ago. With..." Anne paused. "With my Julia. She... she loved to fly."
 
-The table went still for a moment. Amy reached under the table and found Anne's hand, squeezed it gently.
+The table went still for a moment. Amy reached under the table, found Anne's hand, and gently squeezed. Margot knew everything she needed to know, and an empathic smile crossed her face.
 
-"Julia was your late partner," Margot said. It wasn't a question. "Dani told me. I'm sorry for your loss."
+"Was she your partner?" Margot said. "I'm sorry for your loss."
 
-"Thank you." Anne's voice was steady, but Amy could feel the slight tension in her fingers. "It was... she was everything to me. For fifteen years."
+"Thank you." Anne's voice was steady, but Amy could feel the slight tension in her fingers. "... She was... everything to me. We were together fifteen years."
 
-"Fifteen years." Margot nodded slowly. "That's a real partnership. A real bond." She paused, seeming to weigh something. "I was with my first Mistress for six years. She taught me everything I know about this life."
+"Fifteen years..." Margot nodded slowly. "That's a significant bond." She paused, seeming to weigh something. "I was with my first Mistress for six years. She taught me everything I know about this life, and I still think of my sewrvice with her rather fondly, I must say. I can't even begin how fifteen years of partnership feels like."
 
 Anne looked up, curious. "Who was she? Perhaps I know her — the community here is small."
 
@@ -222,51 +237,57 @@ Anne looked up, curious. "Who was she? Perhaps I know her — the community here
 
 Anne's hand went very still in Amy's.
 
-"Evelyn," she repeated. "You were Evelyn's."
+"Evelyn!?" she repeated. "You were Evelyn's?"
 
-"You know her."
+"You know her!?"
 
-"She's... she's practically family. She was at Amy's collaring. She and Roger have been part of my life since..." Anne shook her head slowly. "The world is very small."
+"She's... she's practically *family!* She was at Julia's collaring, and she was at Amy's collaring too. She and Roger have been part of my life since... since prehistory, give or take an aeon or two." Anne shook her head slowly. "This world of ours is very small."
 
-Margot laughed, delighted. "Isn't it? I reconnected with her when I moved back to the West Coast, about two years ago. She mentioned she had a friend who was going through a difficult time, who'd lost her partner. I didn't realize until now that she was talking about you."
+Margot laughed, delighted. "It is, isn't it? I reconnected with her when I moved back to the West Coast. She mentioned she had a friend who was going through a difficult time, who'd lost her partner. I didn't realize until now that she was talking about you."
 
 "She never mentioned your name."
 
 "She wouldn't. Evelyn is... discreet."
 
-"Pathologically so." Anne's voice warmed with affection. "Do you remember what she used to say when you were being impatient? When you wanted to rush ahead before you were ready?"
+"Pathologically so." Anne's voice warmed with affection. "Do you remember what she used to say when someone was being impatient?"
 
-Margot's eyes lit up with recognition. "'You're being—'"
+Margot's eyes lit up with recognition. "'You're being...'"
 
-"'—a puppy,'" they said together, and both burst into laughter.
+"'... a puppy,'" they said together, and both burst into laughter.
 
-Amy watched, astonished, as Anne transformed. The careful reserve she always carried in public melted away, replaced by something younger, lighter. She was looking at Margot not as a stranger but as... what? A sister, almost. Someone who had been shaped by the same hands.
+Amy watched, astonished, as Anne transformed. The careful reserve she always carried in public melted away. She felt Anne becoming younger, lighter. The interaction with Margot was not one between strangers. It was almost like a meeting of siblings.
 
-"She said that to me constantly," Margot said, wiping her eyes. "Every time I wanted to skip ahead in my training. 'You're being a puppy, Margot. Puppies don't get to run before they can walk.'"
+"She said that to me *all* the time," Margot said, wiping her eyes. "Every time I wanted to skip ahead in my training, she'd smack my butt and say, 'You're being a puppy, Margot. Puppies don't get to run before they can walk.'"
 
-"She said it to me too. When I was Roger's, before I became who I am now." Anne shook her head, marveling. "We're from the same tree, you and I. Different branches, but the same roots."
+"She said it to me too. When I was Roger's, before I became who I am now." Anne shook her head, marveling. "This is going to sound odd, but... to me, it feels as if you and I are branches of the same tree, Margot."
 
-"It seems that way."
+"It *does* seem that way, doesn't it?"
 
-The two Dominants looked at each other with new eyes, and Amy felt something shift at the table — a recognition that went beyond their slaves, beyond this dinner, into something that might become its own kind of bond.
+The two Mistresses looked at each other with new eyes, and Amy felt the world shift. There was recognition between Margot and Anne, the same kind of recognition that had happened between Dani and herself.
 
-"We should do this more often," Margot said. "Not just for the girls. For us."
+Dani looked at Amy. Amy looked at Dani. Both looked at their Mistresses.
+
+"... We're in trouble now," said Dani.
+
+"... Yeah, we are," said Amy. "We're in the best kind of trouble." Dani giggled. Amy winked. 
+
+Margot and Anne looked at their girls, and both grinned.
+
+"We should do this more often," Margot said. "Not just for the girls. For us, too."
 
 "Yes," Anne agreed. "I think we should."
 
 ---
 
-After dinner, they walked to a nearby park, the autumn air crisp and clear. Margot and Anne had fallen into easy conversation now, comparing notes on Evelyn's training methods, sharing stories Amy and Dani had never heard. Amy found herself trailing behind with Dani, watching their Mistresses walk ahead like old friends.
+After dinner, they walked to a nearby park, the autumn air crisp and clear. Margot and Anne had fallen into easy conversation now, comparing notes on Evelyn's training methods, sharing stories Amy and Dani had never heard. Amy found herself trailing behind Anne, walking besides Dani. Both watched their Mistresses walk ahead, bantering and exchanging jokes and innuendo like old friends.
 
-"Did you know?" Amy asked quietly. "About Anne's connection to Evelyn?"
+"Did you know about Anne's connection to Evelyn?"
 
-"Not specifically. But I knew Margot had history here. That's part of why she wanted to come back — to reconnect with the roots." Dani smiled. "I didn't expect them to click like this, though. Look at them."
+"Not specifically. But I knew Margot had history here. That's part of why she wanted to come back — to reconnect with her roots." Dani smiled. "I didn't expect them to click like this, though. Look at them."
 
 Amy looked. Anne was gesturing as she spoke, more animated than Amy usually saw her in public. Margot was laughing at something, her hand briefly touching Anne's arm.
 
-"I've never seen her like this," Amy said. "With someone her own age, I mean. Someone who... understands."
-
-Anne had told her — *you need peers, not just elders*. Watching Anne now, animated and laughing with Margot, Amy understood the principle went both ways. Anne had Roger and Evelyn, yes — but they were the generation above, the teachers, the roots. Margot was something different. A branch from the same tree, growing alongside.
+Anne had told Amy, *you need peers, not just elders*. Watching Anne now, animated and laughing with Margot, Amy understood what her Mistress was talking about -- and realised that it went both ways. Anne had Roger and Evelyn, yes — but they were the generation above hers, the teachers, the roots. Margot was Anne's age. They related with each other, like branches from the same tree.
 
 "So," Dani said, her voice shifting. "What do you think?"
 
@@ -276,27 +297,27 @@ Anne had told her — *you need peers, not just elders*. Watching Anne now, anim
 
 Amy laughed. "Is Margot impossible?"
 
-"Frequently. Lovingly. Impossibly." Dani's smile was fond. "Yours?"
+"Frequently so. Lovingly so. Impossibly so." Dani's smile was fond. "Yours?"
 
-"The same." Amy glanced ahead to where Anne was walking, her hands moving as she spoke, that particular animation she got when she was engaged. "I wouldn't have her any other way."
+"The same." Amy glanced ahead to where Anne was walking, her hands moving as she spoke, that particular animation she got when she was engaged. "I wouldn't have her any other way, though."
 
-"Good answer."
+"Good answer, babe."
 
-They walked in comfortable silence for a moment. Then Dani said, "We should do this again. Not just dinner — actual hanging out. You could come over sometime. Margot makes incredible paella, and we have a hot tub."
+They walked in comfortable silence for a moment. Then Dani said, "I think we should hang out. You could come over sometime, you know. Margot makes an amazing paella, and we have a hot tub."
 
 "I'd like that." Amy meant it. "I'd really like that."
 
-Ahead of them, Anne turned, her eyes finding Amy's across the distance. She smiled — that particular smile, the one that was just for Amy — and held out her hand.
+Ahead of them, Anne turned. She had taken off her high heel sandals, and was walking barefoot on the grass, holding her shoes in one hand. Her eyes found Amy's across the distance, then she smiled that particular smile that she saved just for Amy and held out her hand.
 
-"Come, mine. It's getting cold."
+"Come, mine. It's getting late."
 
-Amy went to her, and Anne's arm wrapped around her shoulders, warm and sure.
+Amy and Dani went to join their Mistresses. Amy then hugged Dani and curtsied to Margot. Both Dominants warmly hugged, with promises to keep in touch. Amy then went to her Mistress's side, and Anne's arm wrapped around her shoulders, warm and sure. Both couples wnt their separate ways.
 
 "I like them," Anne murmured as they walked toward the car.
 
 "So do I, Mistress."
 
-"Good. Then we'll see them again."
+"Good. Then I am sure that we'll see them again."
 
 ---
 
@@ -695,5 +716,6 @@ She had come to Napa Valley to watch her uncle die. She had stayed to discover w
 *But for now, there was only this: two women, breathing together, hearts beating in synchrony, bound by gold and choice and the stubborn human insistence on love.*
 
 *And that was enough.*
+
 
 *That was everything.*
