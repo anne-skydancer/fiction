@@ -204,7 +204,7 @@ Anne finished her coffee. She paid her check, left her tip, and walked out into 
 
 ---
 
-Loneliness, she had said. Sometimes.
+*Loneliness,* she had said. *Sometimes.*
 
 It was the most honest thing she’d told Amy since they’d met. And she had no idea what to do with the fact that she’d said it – or with the answering recognition she’d seen in Amy’s eyes.
 
