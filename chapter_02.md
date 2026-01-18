@@ -2,7 +2,7 @@
 
 It was past nine when Anne pulled into Marge's parking lot for what she told herself would be the last time.
 
-She had a reason, of course. She always had reasons. This one involved a patient in Yountville whose blood pressure had spiked alarmingly during an afternoon check-up, necessitating a return visit to ensure the new medication was taking effect. The visit had run long, the patient anxious and talkative, and by the time Anne extracted herself the sun had already slipped behind the western hills, leaving the valley bathed in the blue-grey light of early evening.
+She had a reason, of course. She always had reasons. This one involved a patient in Yountville whose blood pressure had spiked alarmingly during an afternoon check-up, necessitating a return visit to ensure the new medication was taking effect. The visit had run long, as the patient was anxious and overly talkative, and by the time Anne extracted herself the sun had already slipped behind the western hills, leaving the valley bathed in the blue-grey light of early evening.
 
 The diner was on her way home. She was hungry. These were facts, and facts were safe things to hold onto.
 
