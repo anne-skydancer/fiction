@@ -38,7 +38,7 @@ The world suddenly slowed down to a crawl.
 
 The scarf she'd worn that morning had slipped loose. The collar was visible — not entirely, but enough. The gold caught the light from the window, unmistakable.
 
-"T-that's beautiful," Dani said. "Is... that bespoke?"
+"T-that's beautiful," Dani said. "Is... is that... bespoke?"
 
 Amy's heart hammered. A year ago — heck, six *months* ago! — this moment would have sent her spiralling into a panic. She would have made excuses, adjusted her scarf, and done her best to change the subject entirely. She would have felt the shame her mother had tried to instil in her, the fear of being seen as different, as a deviant, as *wrong.* But she wasn't that girl anymore — and her mother no longer existed, as far as she was concerned.
 
@@ -719,4 +719,5 @@ She had come to Napa Valley to watch her uncle die. She had stayed to discover w
 
 
 *That was everything.*
+
 
