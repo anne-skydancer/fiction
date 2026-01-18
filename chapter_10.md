@@ -147,7 +147,7 @@ Margot was not what Amy had expected.
 She'd imagined someone like Anne — a polished, controlled woman, with the particular stillness she knew so well  in her Mistress and that she now automatically linked to a seasoned Dominant. 
 Instead, the woman who rose to greet them was warm and animated, with laugh lines around her eyes and silver streaking through her dark curls. She wore jeans and a blazer over a slightly sheer balconette top, wore simple gold studs on her ears, and, when she laughed, her whole face participated.
 
-"Anne, Amy, I'm so glad to meet you both." She clasped Anne's hand first, then Amy's, her grip firm but not performative. "I've heard so much about you, Amy. Dani hasn't stopped talking about *you* since the coffee shop."
+"Anne, Amy, I'm so glad to meet you both." She clasped Anne's hand first, then Amy's, her grip firm and sincere. "I've heard so much about you, Amy. Dani hasn't stopped talking about *you* since the coffee shop."
 
 "Mistress..." Dani's voice carried a note of fond warning. "You *promised.*"
 
@@ -241,7 +241,7 @@ Anne's hand went very still in Amy's.
 
 "You know her!?"
 
-"She's... she's practically *family!* She was at Julia's collaring, and she was at Amy's collaring too. She and Roger have been part of my life since... since prehistory, give or take an aeon or two." Anne shook her head slowly. "This world of ours is very small."
+"She's... she's practically *family!* She was at Julia's collaring, and she was at Amy's collaring too. She and Roger have been part of my life since... since prehistory, give or take an aeon or two." Anne shook her head slowly. "This world of ours is *too* small."
 
 Margot laughed, delighted. "It is, isn't it? I reconnected with her when I moved back to the West Coast. She mentioned she had a friend who was going through a difficult time, who'd lost her partner. I didn't realize until now that she was talking about you."
 
@@ -291,7 +291,7 @@ Anne had told Amy, *you need peers, not just elders*. Watching Anne now, animate
 
 "So," Dani said, her voice shifting. "What do you think?"
 
-"I think..." Amy paused, searching for the right words. "I think I didn't know how much I needed this. Someone who gets it. Someone my age."
+"I think..." Amy paused, searching for the right words. "I think I didn't know how much I needed to connect with someone my age who *gets* it."
 
 "Me too." Dani bumped her shoulder gently. "The community's great, but everyone's so much *older*. It's nice to have someone to text when your Mistress is being impossible and you need to vent."
 
@@ -299,15 +299,17 @@ Amy laughed. "Is Margot impossible?"
 
 "Frequently so. Lovingly so. Impossibly so." Dani's smile was fond. "Yours?"
 
-"The same." Amy glanced ahead to where Anne was walking, her hands moving as she spoke, that particular animation she got when she was engaged. "I wouldn't have her any other way, though."
+"The same." Both girls giggled. Amy then glanced ahead to where Anne was walking, her hands moving as she spoke, that particular animation she got when she was engaged. 
 
-"Good answer, babe."
+"I wouldn't have her any other way, though."
+
+"Good answer, babe," said Dani.
 
 They walked in comfortable silence for a moment. Then Dani said, "I think we should hang out. You could come over sometime, you know. Margot makes an amazing paella, and we have a hot tub."
 
 "I'd like that." Amy meant it. "I'd really like that."
 
-Ahead of them, Anne turned. She had taken off her high heel sandals, and was walking barefoot on the grass, holding her shoes in one hand. Her eyes found Amy's across the distance, then she smiled that particular smile that she saved just for Amy and held out her hand.
+Ahead of them, Anne turned. She had taken off her high heel sandals, and was walking barefoot on the grass, holding them in one finger by the ankle straps. Her eyes found Amy's across the distance, then she smiled that particular smile that she saved just for Amy and held out her hand.
 
 "Come, mine. It's getting late."
 
@@ -323,31 +325,39 @@ Amy and Dani went to join their Mistresses. Amy then hugged Dani and curtsied to
 
 They did see them again. And again. And again.
 
-What had started as a single dinner became a rhythm — monthly gatherings that rotated between houses, sometimes formal dinners, sometimes casual evenings with wine and conversation that stretched past midnight. Anne and Margot discovered they had more in common than their shared lineage through Evelyn; they had similar taste in music, similar frustrations with the medical and therapy professions, similar senses of humor that emerged after the second glass of wine.
+What had started as a single dinner became a rhythm — monthly gatherings that rotated between houses, sometimes formal dinners, sometimes casual evenings with wine and conversation that stretched past midnight. 
 
-And Amy and Dani...
+Anne and Margot discovered they had more in common than their shared lineage through Evelyn; they had similar taste in music, similar frustrations with the medical and therapy professions, similar senses of humor that emerged after the second glass of wine.
 
 Amy and Dani became inseparable.
 
-They texted constantly — about class, about art, about the small frustrations and joys of their lives. They met for coffee between lectures, studied together in the library, critiqued each other's work with the particular honesty that came from genuine respect.
+They texted constantly about class, art, and the small frustrations and joys of their lives. They met for coffee between lectures, studied together in the library, and critiqued each other's work with the particular honesty that came from genuine, mutual  respect.
 
-They discovered they shared a love for Anselm Kiefer.
+They also discovered they shared a love for Anselm Kiefer.
 
-This was ridiculous, on the face of it. Both of them drew in delicate lines — Amy's classical Western training, Dani's sumi-e-influenced brushwork — and yet they were both obsessed with an artist who built canvases that weighed a thousand pounds, who worked in lead and ash and straw, who made monuments to devastation and what rises from it.
+This was ridiculous, on the face of it. Both of them drew delicately — Amy had classical, Western training, while Dani's art was heavily influenced by Japanese sumi-e — and yet... they were both obsessed with an artist who built enormous pieces in lead, straw and ash that weighed a thousand pounds, ponderous monuments to chaos, devastation, and from what rises from it.
 
-"It doesn't make sense," Amy said one afternoon. They were sprawled on the floor of Dani's apartment, an arts newspaper spread between them, cups of cold tea forgotten on the coffee table. "We draw like air. Why do we love work that's made of lead?"
+"It doesn't make sense," Amy said one afternoon. They were sprawled on the floor of Dani's apartment, the latest issue of the Arts Newspaper spread between them, among cups of cold tea forgotten on the coffee table. "We draw like air. Why do we love work that's made of lead?"
 
 "Maybe that's exactly why." Dani traced her finger over an image of one of Kiefer's monumental pieces. "We live in delicacy. We love what we can't be."
 
-Amy thought about that. About the collar at her throat, light as a breath. About the ropes that held Dani down, precise and careful. About the way they both lived in structures of control — and how they were drawn to art that looked like the aftermath of an explosion.
+Amy thought about that. She thought about the collar at her throat, light as a breath. 
 
-"There's an exhibition," Dani said, pointing to an ad in the corner of the page. "SFMOMA. Opens next month. A retrospective."
+About the ropes that held Dani down, precise and careful. 
+
+About the way they both lived in structures of control — and how they were drawn to art that looked like the aftermath of an explosion.
+
+"This restospective is opening soon at the SFMOMA," Dani said, pointing to the ad she was fingering.
 
 Amy leaned closer to look, and her hand brushed Dani's on the newsprint.
 
 They both went still.
 
-Amy looked at Dani. Dani looked at Amy. And something shifted — the air between them suddenly charged with a possibility that hadn't been there a moment before.
+Amy looked at Dani. 
+
+Dani looked at Amy. 
+
+The air between them suddenly became charged with a possibility that hadn't been there a moment before.
 
 Dani blushed. A real blush, starting at her cheeks and spreading down her neck — visible even through her tan.
 
@@ -357,33 +367,33 @@ This was different from the coffee shop, from the dinner, from all the casual to
 
 "Dani..." Amy started, not sure what she was going to say.
 
-Dani kissed her.
+Then... Dani kissed her.
 
-It was soft, tentative — a question rather than a statement. Amy's breath caught. And then she was kissing back, her hand coming up to cup Dani's face, feeling the warmth of her skin, the slight tremble in her jaw.
+It was a soft, tentative kiss, a question rather than a statement. Amy's breath caught... And then she was kissing back, gently, lightly, her hand coming up to cup Dani's face, feeling the warmth of her skin, and the slight tremble in her jaw.
 
-When they broke apart, both of them were breathing harder than they should have been.
+When they broke apart, both of them were breathing harder than they should have been, and their cheeks were both redder than they should be.
 
-"I..." Dani's voice was unsteady. "I should probably ask permission before—"
+"I..." Dani's voice was unsteady. "I should probably ask permission before... you know..."
 
-"Me too." Amy laughed, a little shakily. "We should both... probably ask."
+"... Yeah... Me too." Amy laughed, a little shakily. "We should both... probably ask..."
 
 They looked at each other. And then they were both laughing, the tension breaking into something lighter.
 
-"The exhibition," Amy said. "We should go. Together."
+"We should go together to the opening," Amy said.
 
-"Like a date?"
+"Like... a date?"
 
-"Like a date." Amy bit her lip. "If they allow it."
+"Like a date, if they allow it," Amy said, biting her lip.
 
 "I'll ask Margot tonight."
 
 "I'll ask Anne."
 
-They looked at each other again, and Amy felt something new settling into place — not replacing what she had with Anne, but expanding alongside it. A different kind of connection. A different kind of intimacy.
+They looked at each other again, and Amy felt affection stirring within her. It wasn't replacing what she had with Anne. Rather, it felt lie a flower blossoming alongside what was already there. The same kind of intimacy, but different.
 
-"I should probably go," Amy said reluctantly. "Before we do anything else that requires permission."
+"I... should probably go... before we do anything else that requires, y'know, permission..."
 
-Dani laughed. "Probably wise."
+Dani laughed. "... You're probably right." The wink she exchanged with Amy was completely conspiratorial.
 
 At the door, Dani caught her hand. "Amy... whatever happens... I'm glad we found each other. Even if this is all it ever is."
 
@@ -395,15 +405,15 @@ Anne said yes.
 
 She said it simply, without hesitation, as if Amy had asked for something obvious rather than permission to take another woman on a date.
 
-"Margot and I discussed this possibility," Anne said. They were in bed, Amy curled against her side, the conversation happening in the dark where hard things became easier. "We both think it could be good for you. For both of you."
+"Margot and I discussed this possibility," Anne said. They were in bed, Amy curled against her side, the conversation happening in the dark where hard things became easier. "We both think it could be good for both of you."
 
 "You're not... jealous?"
 
-Anne was quiet for a moment. "Jealousy implies ownership without trust. I own you completely, Amy — and I trust you completely. What you share with Dani doesn't diminish what you share with me. It's a different language, that's all."
+Anne was quiet for a moment. "Jealousy implies ownership without trust. I own you completely, Amy — and that means that I trust you completely. What you share with Dani doesn't diminish what you have with me. It's a different language, that's all."
 
 "Margot said something similar. About rope being a different language."
 
-"She's right." Anne's hand stroked slowly down Amy's arm. "There are things Dani can give you that I can't. The friendship of an equal. The understanding of someone walking the same path. And yes, perhaps, intimacy of a certain kind — bodies that speak to each other the way ours do, but with a different accent."
+"She's right." Anne's hand stroked slowly down Amy's arm. "There are things Dani can give you that I can't -- The friendship of an equal, the understanding and complicity of someone walking the same path as you are... and, perhaps, the kind of intimacy we have, but with a different accent."
 
 Amy turned her face into Anne's shoulder. "I love you, Mistress. That won't change."
 
@@ -419,11 +429,11 @@ Amy met Dani outside the museum, both of them dressed more carefully than usual 
 
 "Ready."
 
-The Kiefer retrospective was overwhelming in the best way. Room after room of massive canvases, sculptures made of books and lead, installations that transformed the gallery into something like a cathedral of memory. Amy and Dani moved through it slowly, stopping in front of each piece, sometimes talking, sometimes just standing in silence together.
+The Kiefer retrospective was overwhelming in the best way. Room after room of massive books made of giant lead sheets and overwhelming installations that transformed the galleries into a cathedral of chaos and memory. Amy and Dani moved through it slowly, stopping in front of each piece, sometimes talking, sometimes just standing together in silent awe.
 
-In front of a particularly large canvas — burned straw and ash and oil, a landscape that looked like the aftermath of catastrophe — Amy found herself reaching for Dani's hand.
+In front of a particularly large piece made out of burned straw, ash and oil, reminiscent of a post-apocalyptic landscape, Amy found herself reaching for Dani's hand.
 
-Dani took it. Held it. Didn't let go.
+Dani took it, held it, and didn't let go.
 
 "It's beautiful," Amy whispered. "It's devastating and it's beautiful."
 
@@ -431,21 +441,25 @@ Dani took it. Held it. Didn't let go.
 
 They stood there for a long time, hands intertwined, looking at a painting about destruction and survival.
 
-Later, they found a quiet bench in a less-crowded gallery, and talked about what they'd seen. About art, about their own work, about how strange it was to love something so heavy when they both drew with such light hands.
+Later, they found a quiet bench in a less-crowded gallery, and talked about what they'd seen. They talked about how strange it was to love something so heavy when they both drew with such light hands.
 
-"Maybe we need the weight," Dani said. "Maybe that's why we're drawn to it. Because our lives are so much about control — about delicacy, about precision — and Kiefer is the opposite. He's chaos made permanent."
+"Maybe we need the weight," Dani said. "Maybe that's why we're drawn to it, because our lives are so much about delicacy and precision — and Kiefer is the polar opposite. He's chaos made permanent."
 
-Amy thought about her collar. About Anne's careful hands. About the structure that had saved her.
+Amy thought about her collar, about Anne's careful hands, and about the structure that had saved her.
 
 "Is that what the ropes are for you?" she asked quietly. "Chaos made permanent?"
 
-Dani was quiet for a moment. "The ropes are... safety. Being held so tight I can't fly apart. Some people fly — like Julia did, apparently. I need to be held down. Different paths to the same place."
+Dani was quiet for a moment. "The ropes are... safety. They're about being held tight, so tight thay I can't fly apart. Some people fly. I need to be held down. Those are both paths to the same place."
 
 "The same place?"
 
-"Surrender." Dani's voice was soft. "Letting go of everything except sensation. Becoming just a body, just breath."
+"Both lead to surrender, Amy," Dani said in a low, soft voice. "Both lead to letting go of everything except sensation."
 
-Amy felt something tighten in her chest — fear, but also curiosity.
+Amy felt something tighten in her chest. 
+
+It was fear. 
+
+But it also was curiosity.
 
 "I've never..." She stopped, not sure how to say it. "Anne hasn't... We don't do bondage. I don't know if I can."
 
@@ -453,7 +467,7 @@ Dani turned to look at her, eyes gentle. "Why not?"
 
 "I don't know." That wasn't quite true, and they both knew it. Amy tried again. "I'm afraid of... not coming back. Of dissolving completely. Of losing myself."
 
-"Annihilation," Dani said quietly.
+"You're scared of being annihilated," Dani said quietly.
 
 "Yes." Amy's voice was barely audible. "Exactly."
 
@@ -461,11 +475,11 @@ Dani was quiet for a long moment. Then she said, "I understand that fear. I had 
 
 "How did you get past it?"
 
-"I didn't, exactly. It's still there. But..." Dani paused, choosing her words carefully. "The first time Margot tied me — really tied me, not just played with restraints — I was terrified. I thought I would panic, thought I would safeword, thought I would prove I wasn't cut out for it."
+"I didn't, exactly. It's still there. But..." Dani paused, choosing her words carefully. "The first time Margot tied me... I mean really tied me, not just playing... I was petrified. I thought I would panic, thought I would safeword, thought I would prove I wasn't cut out for it."
 
 "What happened?"
 
-"I surrendered." Dani's eyes were distant, remembering. "Not to the ropes — to her. To the trust we'd built. And I discovered... you don't dissolve. You become more yourself, not less. Everything else falls away, and what's left is just... you. The essential you. Held safe."
+"I surrendered." Dani's eyes were distant, remembering. "But I did not surrender to the *ropes.* I surrendered... to *her.*  And I discovered... that you don't dissolve. You become more yourself, not less. Everything else falls away, and what's left is just... you. The essential you. Held safe."
 
 "But how do you know you'll come back?"
 
@@ -487,27 +501,25 @@ Amy looked at Dani — this woman she was only beginning to know, who understood
 
 Dani's breath caught. "Yes."
 
-They left the museum together.
+They left the museum together, and went to Dani's home. Somehow, neither of them quite remembered how or why they ended up naked and tangled in each other's arms, their mouths fused together like each other held the breath the other lacked.
+
+And, that night, they also discovered other ways of knowing each other.
 
 ---
 
-That night, in Dani's bed, they discovered other ways of knowing each other.
-
----
-
-After, tangled together in the sheets, Amy traced lazy patterns on Dani's skin. The leather cuff was warm against her fingers. The room was quiet, the city humming distantly beyond the windows.
+Afterwards, tangled together in the sheets, breathing shallowly, and awash in the afterglow, Amy traced lazy patterns on Dani's skin. Dani's leather bracelet felt almost alive against her fingers. The room was quiet, the city humming distantly beyond the windows.
 
 "Dani?"
 
 "Mm?"
 
-"Thank you. For what you said earlier. About coming back."
+"Thank you... for what you said earlier. About coming back."
 
-Dani turned her head, her eyes soft in the low light. "You're thinking about trying it, aren't you? Bondage."
+Dani turned her head, her eyes soft in the low light. "You're thinking about trying it, aren't you?"
 
-"I don't know." Amy paused. "Maybe. Someday. With Anne." She bit her lip. "There's something she hasn't shown me yet. A room in the house. I've never asked about it, and she's never offered."
+"I... I don't know." Amy paused. "Maybe. Someday. " She bit her lip. "There's... A room in the house I haven't been invited to yet. I've never asked about it, and she's never offered."
 
-"A room?"
+"Oh?"
 
 "I think it's where she... where she and Julia..." Amy couldn't finish the sentence.
 
@@ -515,19 +527,17 @@ Dani turned her head, her eyes soft in the low light. "You're thinking about try
 
 "Yes."
 
-Dani was quiet for a moment. Then she said, "When you're ready — if you're ever ready — you'll know. And Anne will know. That's how it works. The right moment finds you."
+Dani was quiet for a moment. Then she said, "When you're ready for it, you'll know. And Anne will know too. That's how it works. The right moment finds you."
 
-Amy pressed closer, feeling Dani's heartbeat against her own. Two owned girls, lying in the aftermath of intimacy, talking about fear and flight.
+Amy pressed closer, feeling Dani's heartbeat against her own. The world was very distantfor them as they lay in the aftermath of intimacy, talking about fear and flight.
 
-"I'm glad I have you," Amy whispered. "To talk about these things."
+"I'm glad I have you to talk about these things," Amy whispered.
 
-"Me too." Dani kissed her forehead. "That's what peers are for."
+"Me too." Dani kissed her forehead. "That's what friends are for."
 
-And Amy felt the last piece of something click into place — not just a lover, not just a Mistress, but a *life*. Complete with friends who understood, with community that embraced her, with a future that stretched out before her full of possibility.
+"I think it's safe to say we're more than friends now, Dani." Dani laughed, and Amy giggled. Both felt the connection building from the shared bonds of service, care, and love -- for their Mistresses... and for each other.
 
-She was no longer hiding in plain sight.
-
-She was simply, finally, *living*.
+And Amy, at last, started to feel like she was no longer hiding in plain sight, but was simply, finally, *living*.
 
 ---
 
@@ -719,5 +729,6 @@ She had come to Napa Valley to watch her uncle die. She had stayed to discover w
 
 
 *That was everything.*
+
 
 
