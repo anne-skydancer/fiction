@@ -149,7 +149,7 @@ Instead, the woman who rose to greet them was warm and animated, with laugh line
 
 "Anne, Amy, I'm so glad to meet you both." She clasped Anne's hand first, then Amy's, her grip firm but not performative. "I've heard so much about you, Amy. Dani hasn't stopped talking about *you* since the coffee shop."
 
-"Margot..." Dani's voice carried a note of fond warning. "You *promised.*"
+"Mistress..." Dani's voice carried a note of fond warning. "You *promised.*"
 
 "I promised not to embarrass *you.* I said nothing about not embarrassing myself." Margot pulled out a chair for Dani with an ease that spoke of long practice. "Please, sit. I've already ordered wine — I hope you don't mind. I've been told the Barbera here is exceptional."
 
@@ -719,3 +719,4 @@ She had come to Napa Valley to watch her uncle die. She had stayed to discover w
 
 
 *That was everything.*
+
